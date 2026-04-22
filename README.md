@@ -1,5 +1,5 @@
 # TEXTURE-PACK-RL4
-okayy gracias por descargar, para hacerlo, ve donde pone, releases y le das code e download. graxx
+okayy gracias por descargar, para hacerlo, ve donde pone, releases y le das code e download. graxx, ahh! y haz una copia de tus resources og
 
 
 
